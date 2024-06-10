@@ -1,2 +1,2 @@
 # RaScoon-Free-version
-Our free versiom
+Keep in mind its Alpha and yea Check our discord!
